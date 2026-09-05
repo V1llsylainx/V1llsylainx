@@ -1,9 +1,5 @@
-︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
-<p align="center"> 𝕷𝖔𝖛𝖊 𝕱𝖔𝖗 𝙁𝙮𝙤𝙙𝙤𝙧 𝙈𝙞𝙠𝙝𝙖𝙮𝙡𝙤𝙫𝙞𝙘𝙝 𝘿𝙤𝙨𝙩𝙤𝙚𝙫𝙨𝙠𝙮 
-<p align="center"><a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/8ccRxK6X/Khong-Co-Tieu-De819-20260708135355.png' border='0' alt='Khong-Co-Tieu-De819-20260708135355'></a>
-<p align="center"> <a href="https://github.com/NikolaiVasilievich-Gogol141">⭒Fr
-<p align="center">𝕮𝖗𝖎𝖒𝖊 𝖆𝖓𝖉 𝕻𝖚𝖓𝖎𝖘𝖍𝖒𝖊𝖓𝖙.
-<p align="center"><a href='https://postimg.cc/vcRMJZ0r' target='_blank'><img src='https://i.postimg.cc/vcRMJZ0r/08bc964ca2d72ac17ace727ff726e145.jpg' border='0' alt='08bc964ca2d72ac17ace727ff726e145'></a>
-<p align="center">︵︵︵︵︵︵︵︵︵︵︵︵︵  
-<p align="center"> <a href="https://veliona.atabook.org/">⭒Atabook𐙚⭒๋๋࣭𓈒</a><p align="center"> <a href="https://discord.gg/HVVDZmfH">໒𝙳𝚒𝚜𝚌𝚘𝚛𝚍꒱ིྀ</a><p align="center"> 
-<p align="center"><a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/ZqmrJKN5/Khong-Co-Tieu-De821-20260708140810.png' border='0' alt='Khong-Co-Tieu-De821-20260708140810'></a>
+<p align="center"> <img width="297" height="289" alt="Image" src="https://github.com/user-attachments/assets/4573cb37-a813-4541-a546-102e6888e25c" />
+<p align="center"> <a href="https://www.patreon.com/profile/creators?u=218917899">𝙱𝚕𝚊𝚌𝚔𝚕𝚒𝚜𝚝</a>
+<p align="center"> <a href="https://github.com/AxellVanpus">𝙱𝚕𝚊𝚌𝚔𝚕𝚒𝚜𝚝</a>
+  
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Normal&pause=1000&color=FF0000&center=true&vCenter=true&width=435&lines=DNI+if+you're+on+my+%22blacklist%22." alt="Typing SVG" /></a>
